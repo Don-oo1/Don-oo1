@@ -1,6 +1,6 @@
-- 👋 Hi, I’m @Don-oo1
-- 👀 I’m interested in creative things 
-- 🌱 I’m currently changing the word 
+- 👋 Hi, I’m Nirmal Odedara @Don-oo1
+- 👀 I’m interested in doing creative things, solving problems
+- 🌱 I’m currently building things
 - 💞️ I’m looking to collaborate on make real creative idea 
 
 
